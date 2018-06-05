@@ -51,9 +51,9 @@
 
 <p>một số yếu tố không giống dẫn tới bệnh viêm ngứa âm đạo có thể nhắc đến như tâm lý, chứng bệnh tiểu đường, mặc đồ lót không thoải mái&hellip;..</p>
 
-<p><span style="color:rgb(17, 85, 204); font-family:arial; font-size:10pt"><a class="in-cell-link" href="http://khoehangngay.com/viem-ngua-am-dao/" target="_blank">http://khoehangngay.com/viem-ngua-am-dao</a></span></p>
+<p><span style="color:rgb(17, 85, 204); font-family:arial; font-size:10pt"><a class="in-cell-link" href="http://khoehangngay.com/viem-ngua-am-dao/" target="_blank">cách chữa ngứa âm đạo</a></span></p>
 
-<p><span style="color:rgb(17, 85, 204); font-family:arial; font-size:10pt"><a class="in-cell-link" href="http://benhtrinoi.net/dieu-tri-viem-ngua-am-dao/" target="_blank">http://benhtrinoi.net/dieu-tri-viem-ngua-am-dao</a></span></p>
+<p><span style="color:rgb(17, 85, 204); font-family:arial; font-size:10pt"><a class="in-cell-link" href="http://benhtrinoi.net/dieu-tri-viem-ngua-am-dao/" target="_blank">triệu chứng ngứa âm đạo</a></span></p>
 
-<p><span style="color:rgb(17, 85, 204); font-family:arial; font-size:10pt"><a class="in-cell-link" href="http://khoehangngay.com/nguyen-nhan-gay-ngua-am-dao/" target="_blank">http://khoehangngay.com/nguyen-nhan-gay-ngua-am-dao</a></span></p>
+<p><span style="color:rgb(17, 85, 204); font-family:arial; font-size:10pt"><a class="in-cell-link" href="http://khoehangngay.com/nguyen-nhan-gay-ngua-am-dao/" target="_blank">nguyên nhân gây ngứa âm đạo</a></span></p>
 
