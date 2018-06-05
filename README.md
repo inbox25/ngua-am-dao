@@ -1,4 +1,4 @@
-# ngua-am-dao
+# Tổng hợp nguyên nhân gây ngứa âm đạo
 <p>Nguyên nhân gây viêm ngứa âm đạo ở bạn gái cần biết</p>
 
 <p>Theo nhiều tìm hiểu, có tới 90% phụ nữ ít nhất một lần trong đời sẽ mắc phải căn bệnh phụ khoa phổ quát viêm bộ phận sinh dục nữ. căn bệnh không chỉ tác động đến đời sống của thành phần chị em phụ nữ, việc không nhận thấy và xử lý kịp thời còn có khả năng gây ra hại tới sức khỏe sinh sản, có thể còn tác hại nguy hiểm. bởi vậy, việc tìm hiểu và nắm bắt các kiến thức cơ bản về bệnh viêm ngứa âm đạo là vô cùng cần thiết.</p>
